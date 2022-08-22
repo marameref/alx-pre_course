@@ -1,1 +1,1 @@
-kitty is my coding buddy
+kitty  and green tea are my coding buddies!
